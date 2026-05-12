@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with kaizen Script best, the #1 Script. Includes one-hit kill and esp for unbeatable performance.
 
 
 
